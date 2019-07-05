@@ -1,37 +1,8 @@
-## Welcome to GitHub Pages
+# ⭐️香蕉成人视频⭐️ 最新地址发布 
+## ‼️长按复制到浏览器里面访问网址‼️
+## ⭐️ 👉 地址一 ：https://avjj77.com
+## ⭐️ 👉 地址二 ：https://avjj6066.com
+## ⭐️ 👉 地址三 ：https://avjj9099.com
 
-You can use the [editor on GitHub](https://github.com/avjj8088/avjj8088.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/avjj8088/avjj8088.github.io/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
+### 📧 邮箱联系方式: avjj8088@gmail.com （发送任意内容获取最新地址）
