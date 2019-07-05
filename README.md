@@ -5,5 +5,5 @@
 >##  `地址二 ：` <a href="https://avjj6066.com" target="_blank">https://avjj6066.com</a>
 >##  `地址三 ：` <a href="https://avjj9099.com" target="_blank">https://avjj9099.com</a>
 
-## 請使用Ctrl+D进行收藏本站!|电脑/Ipad/手机在线播放
+## 请使用 Ctrl+D 进行收藏本站! |电脑/iPad/手机在线播放
 ### 📧 邮箱联系方式: `avjj8088@gmail.com` （发送任意内容获取最新地址）
